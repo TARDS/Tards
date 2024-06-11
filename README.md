@@ -1,4 +1,4 @@
-## Hi there 👋
+## Olá 👋
 
  Tards: A Nova Era de Criptomoedas Baseadas em Inteligência Artificial
 
